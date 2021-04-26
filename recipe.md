@@ -1,8 +1,5 @@
 # LOW FODMAP SPAGHETTI BOLOGNESE
 
->A lovely quick take on the traditional Italian pasta dish.   
-It's quick to make and tastes amazing too! Nutritional yeast is a 'cheesy' flavoured condiment that is available in all good health food stores. It brings a 'cheesy' taste to this dish, without any of the saturated fat. It's worth having in your press.
-
 ### **Ingredients**
 
 * 1 x 400g gluten-free spaghetti  
