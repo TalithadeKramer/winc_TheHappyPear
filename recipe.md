@@ -1,7 +1,30 @@
 # LOW FODMAP SPAGHETTI BOLOGNESE
 
->A lovely quick take on the traditional Italian pasta dish.   
-It's quick to make and tastes amazing too! Nutritional yeast is a 'cheesy' flavoured condiment that is available in all good health food stores. It brings a 'cheesy' taste to this dish, without any of the saturated fat. It's worth having in your press.
+>A lovely quick take on the traditional Italian pasta dish. It's quick to make and tastes amazing too! Nutritional yeast is a 'cheesy' flavoured condiment that is available in all good health food stores. It brings a 'cheesy' taste to this dish, without any of the saturated fat. It's worth having in your press.
+
+
+### **Ingredients**
+
+* 1 x 400g gluten-free spaghetti  
+* 2 tablespoons olive oil  
+* 2 tsp salt  
+* The greens of 1 leek – approx 200g  
+* 1 large carrot 300g max  
+* 1 red chilli leave out or reduce if you don’t like spice  
+* 300 g oyster mushrooms – 300g max  
+* 2 tbsp tamari  
+* 200 g fresh cherry tomatoes  
+* 400 g fresh tomatoes  
+* 160 g of tinned cooked lentils  
+* 180 ml red wine  
+* 2 tbsp maple syrup  
+* 1 x 400g tin chopped tomatoes – 370g max  
+* Salt and pepper to taste  
+#### _To Serve_
+* Nutritional yeast  
+* Decent bunch fresh basil  
+* Salt & Pepper
+
 
 ### **Instructions**
 
